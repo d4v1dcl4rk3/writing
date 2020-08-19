@@ -1,3 +1,6 @@
 {
-    "AllAutocomplete.showCurrentDocument": false
+    "AllAutocomplete.showCurrentDocument": false,
+    "workbench.colorCustomizations": {
+    
+    }
 }
