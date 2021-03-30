@@ -125,30 +125,30 @@ Mark put me in touch with his HR department. The to-ing and fro-ing between them
 
 It was late October 2009, nearly 2 months after the fateful meeting with Phil. I had been granted an Australian work visa and so met the requirements to work for Mark's company. The dream of working again was now a reality. Still, through all the excitement there were deep, stomach-churning doubts. What if I was making the wrong life choice?
 
-To announced the news, I sent an email to my family, friends and colleagues. I was now committed. Everyone was supportive. However, I could sense Mom and Dad's disappointment. It was then I began to appreciate what I meant to family and friends. I had to sever those ties to satisfy my needs. Everyone accepted it; work was one of life’s necessities. Years in school and further education prepared us for it. It was part of our identity and in many ways defined who we are. I wanted to define who I am. Australia would be where I could do it.
+To announced the news, I sent an email to my family, friends and colleagues. I was now committed. Everyone was supportive. However, I could sense Mom and Dad's disappointment. It was then I began to appreciate what I meant to family and friends. I had to sever those ties to satisfy my needs. Everyone accepted it; work was one of life’s necessities. Years in school and further education prepared us for it. It is part of our identity and in many ways defines who we are. I wanted to define who I am. Australia would be where I could do it.
 
-One morning, I searched for single way flights from Birmingham, UK to Sydney, Australia. The cost, as Mark had alluded to, would be my expense. Having been out of work for two months, my bank bank balance was low. The flights during the week were a lot cheaper and sooner.
+One morning, I searched for single way flights from Birmingham, UK to Sydney, Australia. The cost, as Mark had alluded to, would be at my own expense. Having been out of work for two months, my bank balance was a bit low. I could depart sooner, just about afford the higher flight cost, but start earning sooner in Australia. The alternative was to book a later departing flight and pay marginally less. It made sense to depart as soon as possible.
 
-Without consulting anyone, I hesitantly went through the booking process on the Emirates website. The prices marginally differed from one week to the next. With a committed attitude, the earlier, the better. 6 steps later in the online booking process, the congratulatory confirmation page appeared. £800 had been ripped from the faintly beating heart of my bank account. I may have had no money, but I had a:
+There I was on the Emirates Airlines online booking website. 6 pages later the congratulatory confirmation page appeared. £800 had been ripped from the faintly beating heart of my bank account. I may have had no money, but I had a:
 
 - visa
 - job contract
 - flight
 - place to stay, soon to be arranged by work
 
-The doubts faded and the feeling of accommplishment began to bubble up. I was going to Australia. Wow.
+I felt an adrenaline rush. I was going to Australia. Wow.
 
-My mom walked into the dining room on her way to the kitchen. I grasped her shoulders, looked her in the eyes and said, "Mom, in 4 days-time I'm flying to Sydney." She paused. Her usual bubbly demeanour changed to one of apprehension. "Oh, good", she said as she continued walking into the kitchen. I began feeling apathetic. How would this decision affect my family? I again questioned why I was doing this. In short, at that moment in time, to work again was the biggest priority in my life. I’ll give it 2 weeks and see how it goes. It was a thought I sold to myself. A thought I would revise repeatedly.
+My mom walked into the dining room on her way to the kitchen. I grasped her shoulders, looked her in the eyes and said, "Mom, in 4 days-time I'm flying to Sydney." She paused. "Oh, good", she said quietly. Her usual bubbly demeanour changed to one of apprehension as she continued walking into the kitchen. I began feeling apathetic. This interaction brought home the reality of it. I again questioned why I was doing this. In short, at that moment in time, to work again was the biggest priority in my life. I’ll give it 2 weeks and see how it goes. It was a thought I sold to myself. A thought I would revise repeatedly.
 
-Life refused to slow between the time I booked the flight and the day I was due to depart. I felt I was leaving with everything in order.
+Life refused to slow between the time I booked the flight and the day I was due to depart but I felt I was leaving with everything in order.
 
-- The Lichfield house was due new tenants.
+- New tenants were about to move into my Lichfield house.
 - My household goods were all but sold to close family and friends.
-- Flights booked, bags packed, accommodation now organised.
+- Flights were booked, bags packed and accommodation now organised.
 
-I did my best to ensure I was going to hit Australia's red soils running. My soon to be boss Mark, advised I should setup an Australian bank account in the UK prior to my arrival. Unfortunately, it wasn't straightforward. Having secured an appointment with an HSBC advisor, the advice the tellor gave was "it’s far easier to set up a bank account when in Australia". Outside obtaining sustenance and keys to my accommodation, my priority on landing in Australia would be to open a bank account.
+I did my best to ensure I was going to hit Australia's red soils running. My soon to be boss Mark, advised I should setup an Australian bank account in the UK prior to my arrival. Unfortunately, it wasn't straightforward. Having secured an appointment with an HSBC advisor, the advice the teller gave was "it’s far easier to set up a bank account when in Australia". Ok, change of plan then. After obtaining keys to my accommodation, my priority on landing in Australia would be to open a bank account.
 
-My most immediate priority was packing. How do you pack for a new life? Could I base my packing list on recent summer holidays: flip-flops, shorts and a pair of speedos? It was summer time in Sydney, Australia. The weather forecast was for hot and humid conditions. I was probably fine with summer holiday wears. However, I needed clothes to shield me from conditions at the airport and on the air-conditioned aeroplane.
+My most immediate priority was packing. How do you pack for a new life? Could I base my packing list on recent summer holidays: flip-flops, shorts and a pair of speedos? It was summertime in Sydney, Australia. The weather forecast was for hot and humid conditions. I was probably fine with summer holiday wears. However, I needed clothes to shield me from conditions at the airport and on the air-conditioned flight.
 
 I had a rummage for packing list items at home. I forgot I had snorkelling wears. What better an opportunity to use them, but they were bulky. The fins alone barely fitted in my large suitcase. It did a fine effort in swallowing most of my wears. Excess baggage made its way into my small backpack. Unfortunately, some essentials would have to stay in the UK.
 
