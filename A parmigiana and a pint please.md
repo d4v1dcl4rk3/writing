@@ -245,7 +245,7 @@ I had a small amount of money to tide me by, AU\$1000 to be exact. The accommoda
 
 Cole's cooked chicken was naturally salty. I assumed salt was added to it. In fact, it was a consequence of the chicken’s salty diet. The chicken was unusually greasy too, sickeningly so. The combined chicken grease and buttery stuffing could cause stomach upsets. The key to eating the bird without dramas was paper towels. I used these to mop the grease off the chicken, my face and eating surfaces.
 
-Australia is where I discovered a love for several exotic fruits: the avocado and the mango to name but two. Mangos, grown in nearby Queensland were in season. Supermarkets had large numbers in stock, sold at a discount. They were messy; the fibrous tissue always got stuck between the teeth. The excessive, viscous juice always rolled down the chin and collected on my t-shirt. Australian mangoes, considered the sweetest fruit in the world, are a taste sensation.
+Australia is where I discovered a love for several exotic fruits: the avocado and the mango to name but two. Mangos, grown in nearby Queensland were in season. Supermarkets had large numbers in stock, sold at a discount. They were messy; the pieces always got stuck between the teeth. The excessive, viscous juice always rolled down my chin and collected on my t-shirt. Australian mangoes, considered the sweetest fruit in the world, are a taste sensation.
 
 ## Chapter 4
 
